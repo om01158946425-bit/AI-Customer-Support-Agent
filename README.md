@@ -51,6 +51,6 @@ README.md
 
 Omar Mohamed Abdel Hamid
 
-LinkedIn: https://www.linkedin.com/in/omar-mohamed- b17731343?utm_source=share_via&utm_content=profile&utm_medium=member_android
+www.linkedin.com/in/omar-mohamed-b17731343
 
 GitHub: https://github.com/om01158946425-bit
